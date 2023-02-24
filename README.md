@@ -3,7 +3,7 @@
 
 # NO TELEGRAM!
 
-# selling complete files for $1000
+# Price for EverSpy VNC $1000 (LIFETIME)
 
 # New features:
 # • 100% FUD + PlayProtect and AVGs Bypass
