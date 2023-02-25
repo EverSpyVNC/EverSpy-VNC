@@ -18,6 +18,6 @@
 
 # A download link for EverSpy VNC will be sent to you shortly after. Thank you.
 ![photo_2023-02-24_06-52-58](https://user-images.githubusercontent.com/126230176/221148595-a2edbda2-8d6f-437b-ab19-66cd71dd8eab.jpg)
-![photo_2023-02-24_06-48-37](https://user-images.githubusercontent.com/126230176/221148616-dd4b9c42-abcf-410a-9fd2-032d2867d4fe.jpg)
 ![photo_2023-02-24_05-56-34](https://user-images.githubusercontent.com/126230176/221148714-37ff1fe9-64a3-4aa1-ac6b-f7d4571a71de.jpg)
 ![photo_2023-02-24_05-56-41](https://user-images.githubusercontent.com/126230176/221148731-f620d761-7eac-48d2-915c-d603624cea83.jpg)
+![1](https://user-images.githubusercontent.com/126230176/221350667-18872246-97f1-460e-b8c5-20345f9ddd2e.jpg)
